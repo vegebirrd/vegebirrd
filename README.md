@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @vegebirrd . I'm a cat. Ginger cat🐈, to be exact.
 - 👀 I’m interested in music. (All kinds of music, especially rock, alternative, country.
 - 🌱 I’m currently learning how to play guitar.(but failed... to be honest)
-- 💞️ I’m looking to collaborate on ...(IDK...)
+- 💞️ I’m looking to collaborate on ...(@EmptyBlueBox ...)
 - 📫 How to reach me ...
 - 😄 Pronouns: ... U can call me whatever u want. Preferred pronouns: Cat, Feline, Kitten...(anything about cats)
 - ⚡ Fun fact: ... emmmm... Can't think of any.
