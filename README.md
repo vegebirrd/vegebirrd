@@ -5,7 +5,6 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: ... U can call me whatever u want. Preferred pronouns: Cat, Feline, Kitten...(anything about cats)
 - ⚡ Fun fact: ... emmmm... Can't think of any.
-- By the way, my avatar is Weyes Blood, one of my favourite singer-songwriters.
 
 <!---
 vegebirrd/vegebirrd is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
